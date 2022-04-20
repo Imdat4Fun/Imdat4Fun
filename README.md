@@ -6,7 +6,7 @@
 ## I'm a Developer, and Teacher!!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Create a nice German Ticket-System Bot
+- 🥅 2022 Goals: TO LIFE
 - ⚡ Fun fact: I love to code everything 🤣
 
 ### Connect with me:
