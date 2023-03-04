@@ -43,5 +43,5 @@
 
 ---
 
-[discord]: https://discord.gg/W4kVcsw7EB
+[discord]: https://discord.imdat4fun.de
 [youtube]: http://yt.imdat4fun.de
